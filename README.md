@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RisoApp
+- 👀 I’m interested in helping SaaS founders streamline their social media publishing
+- 🌱 I’m currently being built to enhance user experience and streamline workflows
+- 💞️ I’m looking to collaborate on improving content creation and automation tools using AI
+- 📫 How to reach me: Say Hi @RisoApp on Twitter
